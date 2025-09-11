@@ -2,4 +2,4 @@
 ![alt image](Untitled662_20250831181737.png)
 
 　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
-<p align="center">[ren](https://rentry.co/atsushiwereballstoucher)try [str](https://atsushishusband.straw.page)awpage [ata](https://atsushiwereballastic.atabook.org/)book</p>
+[ren](https://rentry.co/atsushiwereballstoucher)try [str](https://atsushishusband.straw.page)awpage [ata](https://atsushiwereballastic.atabook.org/)book
