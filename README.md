@@ -1,6 +1,7 @@
  <p align="center"><img src="https://komarev.com/ghpvc/?username=15chuu&color=000000&label=fools" alt="Centered Image"> <br></p>
 
-![alt image](Untitled662_20250831181737.png)
+
+<p align="center"><img src="https://github.com/15chuu/15chuu/blob/fa8b86aa2e358494b684228c361c452c9abb3a06/d6438a8256eae9b81f7c32fad26b152a.png"/p</p>
 
 　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
                                                                                                                
