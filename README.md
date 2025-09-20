@@ -5,7 +5,7 @@
 
 　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
                                                                                                                
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎  ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎ ‎‎‎‎ ‎ ‎‎‎ ‎‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎‎[ren](https://rentry.co/atsushiwereballstoucher)try‎ ‎ [str](https://atsushishusband.straw.page)awpage‎ ‎ [ata](https://atsushiwereballastic.atabook.org/)book
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎  ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎ ‎‎‎‎ ‎ ‎‎‎ ‎‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎‎[ren](https://rentry.co/atsushiwereballstoucher)try‎ ‎ [pro](https://pronouns.cc/@femboytigers)nouns.cc‎ ‎ [ata](https://atsushiwereballastic.atabook.org/)book
 
 
 <p align="center">im very hesitant and awkaward, im mostly everywhere and sitting in random places with my umm... husband alic oke.. im scared to interact first umm yeah bungo stray dogs is my MAIN interest so i WILL be yapping about it alot, you can freely c + h with me oke? i love cuddling sooo muchh euuuu i rarely have a dni but if i do please dont c + h or int oke? umm yeah i like atsushi alot umm yeah,, read umm my rentry for more info, im currently remaking my pronouns cc and strawp</p>
