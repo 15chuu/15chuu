@@ -1,17 +1,4 @@
  <p align="center"><img src="https://komarev.com/ghpvc/?username=15chuu&color=500000&label=my birds!" alt="Centered Image"> <br></p>
 
 
-　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
-                                                                                                               
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎  ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎ ‎‎‎‎‎‎‎ ‎‎‎‎‎‎‎‎  ‎‎‎‎‎rentryinprogress ‎ [pro](https://pronouns.cc/@femboytigers)nouns.cc‎ ‎ [ata](https://atsushiwereballastic.atabook.org/)book [straw](https://tigerpaws.straw.page)page
-
-
-<p align="center">im very shy and awkward at first if were not close, i have a very slow time at progressing things so please be patient with me. you really gotta interact lots of time to finally get me to behave like a normal human... but you can ALWAYS c*h with me unless i have a dni or with friends. i love cuddling so much,, big BIG cuddle comf</p>
-　 　　 　
-　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
-
-　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
-                                                                                                               
-‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎ ‎‎‎ ‎ ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎  ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎ ‎‎‎ ‎  ‎‎ ‎ ‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎ ‎‎‎‎ ‎ ‎‎‎ ‎‎‎‎‎ ‎‎‎‎ ‎‎‎ ‎‎‎‎‎‎ ‎‎‎‎ ‎ ‎‎‎ ‎‎‎‎‎ ‎‎‎‎ ‎‎‎ [shared rentry](https://rentry.co/gothictear)
-
-<p align="center">hye guys PLEASE CUDDLE WITH ME PLEASE PLEASE I LOVE CUDDLING SO MCUH OK CUDDLE WITHD ME PSL PLESE</p>
+<p align="center">あなたたち機関の皆さんは正義の生き証人です。正直に言って、あなたたちの輝きには魅了されます。天使崩壊計画はまさに悪の体現です。だからこそ、協力する価値があるのです！この牢獄から脱出する時が来ました！道徳という名の、根深い洗脳！私はどんな喜びよりも、魂の自由を求めています！だから、私の自由意志の叫びに耳を傾けてください！</p>
