@@ -1,4 +1,4 @@
- <p align="center"><img src="https://komarev.com/ghpvc/?username=15chuu&color=000000&label=my birds!" alt="Centered Image"> <br></p>
+ <p align="center"><img src="https://komarev.com/ghpvc/?username=15chuu&color=500000&label=my birds!" alt="Centered Image"> <br></p>
 
 
 　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　　 　
