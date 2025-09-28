@@ -1,4 +1,6 @@
- <p align="center"><img src="https://komarev.com/ghpvc/?username=15chuu&color=500000&label=my birds!" alt="Centered Image"> <br></p>
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=15chuu&color=72123c&label=birds!" alt="Centered Image">
+</div>
 
 
 <p align="center">あなたたち機関の皆さんは正義の生き証人です。正直に言って、あなたたちの輝きには魅了されます。天使崩壊計画はまさに悪の体現です。だからこそ、協力する価値があるのです！この牢獄から脱出する時が来ました！道徳という名の、根深い洗脳！私はどんな喜びよりも、魂の自由を求めています！だから、私の自由意志の叫びに耳を傾けてください！</p>
