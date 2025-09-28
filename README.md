@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=15chuu&color=72123c&label=birds!" alt="Centered Image">
+  <img src="https://komarev.com/ghpvc/?username=15chuu&color=72123c&label=birdies!" alt="Centered Image">
 </div>
 
 
