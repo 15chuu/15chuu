@@ -10,4 +10,3 @@
 
 <p align="center"> sign my ata and strawpage for a magic show ( ˙▿˙ ) </p>
 <p align="center"> im still working on my main rentry... T_T </p>
-<p align="center"> ummm im not sure but if i hit 200 followers i will maybe make a tinting AND shading tut jsut maybe.. </p>
