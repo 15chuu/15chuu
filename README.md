@@ -10,3 +10,5 @@
 
 <p align="center"> sign my ata and strawpage for a magic show ( ˙▿˙ ) </p>
 <p align="center"> im still working on my main rentry... T_T </p>
+
+<div align="center"> <a href="https://rentry.co/atsushieater">better info about me</a> </div>
