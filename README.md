@@ -12,3 +12,5 @@
 <p align="center"> im still working on my main rentry... T_T </p>
 
 <div align="center"> <a href="https://rentry.co/atsushieater">better info about me</a> </div>
+
+<p align="center"> i block anyone whos a proshipper or connected to one umm sorry! dni if ur a proshipper / darkshipper, friends with one, friends of friends of friends ok whatever just DONT interact with me if ur connected to proshippers sorry </p>
