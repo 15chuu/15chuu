@@ -6,6 +6,8 @@
 
 <p align="center"> remaking alot of stuffs </p>
 
-<p align="center"> ![alt text](https://files.catbox.moe/tniuzt.png) </p>
+<p align="center">
+  <img src="https://files.catbox.moe/tniuzt.png" alt="Your image description">
+</p>
 
 <p align="center"> "17" y.o that told me to commit 🤣 </p>
