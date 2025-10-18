@@ -9,5 +9,5 @@
 
 
 ㅤ
-<p align="center"> proshippers/darkshippers AND people who befriends proshippers/darkshippers dni </p>
+<p align="center"> proship dni </p>
 <p align="center"> cuddle and cover comfort </p>
