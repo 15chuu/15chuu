@@ -9,4 +9,4 @@
 </p>
 
 <p align="center"> proship dni </p>
-<p align="center"> uddle and cover comfort </p>
+<p align="center"> cuddle and cover comfort </p>
