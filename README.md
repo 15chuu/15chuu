@@ -10,3 +10,9 @@
 
 <p align="center"> proship dni </p>
 <p align="center"> cuddle and cover comfort </p>
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31r6st4k7xxsdc243ndcaw3zp2ge&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=000000&bar_color_cover=false">
+  </a>
+</p>
