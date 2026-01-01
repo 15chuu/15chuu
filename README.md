@@ -5,9 +5,10 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/suicidel)ㅤㅤ[ata](https://15chuu.atabook.org/)ㅤㅤ[tree](https://colormytree.me/2025/01KB9TMPF6G598G6R372WR07BH)ㅤㅤ[match](https://rentry.co/photocam)
 
 <p align="center">
-  <img src="https://files.catbox.moe/5t48n9.webp" />
+  <img src="https://files.catbox.moe/q10op9.webp" />
 </p>
 
+<p align="center"> birthday art that my sweetest and precious boy made for me ♡~ putting it here cs its the best art in the whole wide world ok i love my babe </p>
 <p align="center"> proship dni </p>
 <p align="center"> cuddle and cover comfort </p>
 
