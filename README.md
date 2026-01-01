@@ -2,7 +2,7 @@
   <img src="https://komarev.com/ghpvc/?username=15chuu&color=000000&label=fools" alt="Centered Image">
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/suicidel)ㅤㅤ[ata](https://15chuu.atabook.org/)ㅤㅤ[tree](https://colormytree.me/2025/01KB9TMPF6G598G6R372WR07BH)ㅤㅤ[match](https://rentry.co/photocam)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/suicidel)ㅤㅤ[ata](https://15chuu.atabook.org/)ㅤㅤ[prns cc](https://pronouns.cc/@shin-soukoku)ㅤㅤ[match](https://rentry.co/photocam)
 
 <p align="center">
   <img src="https://files.catbox.moe/q10op9.webp" />
