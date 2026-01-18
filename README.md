@@ -19,3 +19,6 @@
   </a>
 </p>
 
+<p align="center">
+  <img src="https://files.catbox.moe/t65p4f.webp" />
+</p>
