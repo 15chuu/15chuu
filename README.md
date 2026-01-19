@@ -3,7 +3,7 @@
 </div>
 
 <p align="center">
-<a href="https://rentry.co/suicidel">rentry</a>　<a href="https://15chuu.atabook.org/">ata</a>　<a href="https://pronouns.cc/@shin-soukoku">prns cc</a>　<a href="https://rentry.co/photocam">match</a>
+<a href="https://rentry.co/ranposano">rentry</a>　<a href="https://15chuu.atabook.org/">ata</a>　<a href="https://pronouns.cc/@shin-soukoku">prns cc</a>　<a href="https://rentry.co/photocam">match</a>
 
 <p align="center">
   <img src="https://files.catbox.moe/q10op9.webp" />
