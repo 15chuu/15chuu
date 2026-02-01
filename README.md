@@ -4,7 +4,7 @@
 
 <p align="center">
 <a href="https://rentry.co/kyoukenji">rentry</a>　<a href="https://15chuu.atabook.org/">ata</a>　<a href="https://pronouns.cc/@shin-soukoku">prns cc</a>　
-  <a href="https://rentry.co/nikozai">matching rentry w bf</a>　<a href="https://rentry.co/photocam">match</a>
+  <a href="https://rentry.co/nikozai">match1</a>　<a href="https://rentry.co/photocam">match2</a>　<a href="https://chuuatsus.straw.page/">straw</a>
 
 <p align="center">
   <img src="https://files.catbox.moe/q10op9.webp" />
