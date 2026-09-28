@@ -1,8 +1,10 @@
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=15chuu&color=000000&label=♡" alt="Centered Image">
+  <img src="https://komarev.com/ghpvc/?username=15chuu&color=D38585&label=♡" alt="Centered Image">
 </div>
 
+
+
 <div align="center">
-<img src="https://files.catbox.moe/2z9936.jfif" > <br>
+<img src="https://files.catbox.moe/jgyp64.jfif" > <br>
 </div>  
 
