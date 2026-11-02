@@ -8,6 +8,6 @@
 
 <table width=“XXX” height=“200”><tr><td>
   
-[rentry](https://rentry.co/crazygirl) ㅤ [積book](bkdk.atabook.org) ㅤ [matching](https://rentry.co/rydon)
+[rentry](https://rentry.co/crazygirl) ㅤ [積book](https://bkdk.atabook.org) ㅤ [matching](https://rentry.co/rydon)
 
 </td></tr></table>
