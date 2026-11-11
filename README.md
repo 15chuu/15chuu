@@ -1,10 +1,10 @@
 <div align="center">
-  <img src="https://komarev.com/ghpvc/?username=15chuu&color=000000&label=losers" alt="Centered Image">
+  <img src="https://komarev.com/ghpvc/?username=15chuu&color=FEBEE4&label=losers" alt="Centered Image">
 </div>
 
 <div id="text" align="center">
 
-<img src="https://file.garden/aPtfN09PkXWKuLJT/cbdecb1332dde99129f6d8ba7f1d423d.jpg" width="218" alt="Description">
+<img src="https://file.garden/aPtfN09PkXWKuLJT/1e99699b9583076d8e5799022be908c1.jpg" width="318" alt="Description">
 
 <table width=“XXX” height=“200”><tr><td>
   
