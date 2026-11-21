@@ -19,3 +19,7 @@
 <img src="https://files.catbox.moe/lsw4if.webp" width="538" alt="Description">
 
 #coping coz i finished all of the saw movies and theres no saw left
+
+<img src="https://files.catbox.moe/kim6wu.webp" width="538" alt="Description">
+
+hi lets not colorpick my skins Ok
