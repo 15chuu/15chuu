@@ -13,6 +13,6 @@
 </p>
 <p align="center">
   
-<sub>[match1](rentry.co/rydon)  ㅤ ㅤ ♡  ㅤ ㅤ [match2](rentry.co/yudany)</a>
+<sub>[match1](https://rentry.co/rydon)  ㅤ ㅤ ♡  ㅤ ㅤ [match2](https://rentry.co/yudany)</a>
 
 </p>
