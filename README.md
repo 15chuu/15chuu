@@ -17,6 +17,11 @@
 
 </p>
 
+<details>
+  <summary><small>
+
 </summary>
   <p></p>
   <a href="https://github.com/throam"><sub>bff ♡</sub></a> ㅤㅤ <a href="https://github.con/byakuue"><sub>fuyu</sub></a> ㅤㅤ <a href="https://github.con/lullenhearts"><sub>lulu</sub></a> ㅤㅤ <a href="https://github.con/faxxie"><sub>alex</sub></a> ㅤㅤ <a href="https://github.con/deepaffection"><sub>shig</sub></a> ㅤㅤ <a href="https://github.con/devilishlove"><sub>fyo</sub></a>
+
+</details>
