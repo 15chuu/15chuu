@@ -22,6 +22,6 @@
 
 </summary>
   <p></p>
-  <a href="https://github.com/throam"><sub>bff ♡</sub></a> ㅤㅤ <a href="https://github.com/byakuue"><sub>fuyu</sub></a> ㅤㅤ <a href="https://github.com/lullenhearts"><sub>lulu</sub></a> ㅤㅤ <a href="https://github.com/faxxie"><sub>alex</sub></a> ㅤㅤ <a href="https://github.com/deepaffection"><sub>shig</sub></a> ㅤㅤ <a href="https://github.com/devilishlove"><sub>fyo</sub></a>
+  <a href="https://github.com/throam"><sub>bff ♡</sub></a> ㅤㅤ <a href="https://github.com/byakuue"><sub>fuyu</sub></a> ㅤㅤ <a href="https://github.com/lullenhearts"><sub>lulu</sub></a> ㅤㅤ <a href="https://github.com/faxxie"><sub>alex</sub></a> ㅤㅤ <a href="https://github.com/deepaffection"><sub>shig</sub></a> ㅤㅤ <a href="https://github.com/kadita-san"><sub>kadita</sub></a> ㅤㅤ <a href="https://github.com/devilishlove"><sub>fyo</sub></a>
 
 </details>
